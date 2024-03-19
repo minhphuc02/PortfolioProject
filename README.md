@@ -2,7 +2,7 @@
 
 | | |
 |-|-|
-| Nguyen van minh phuc | (+84)398419548 |
+| Nguyen Van Minh Phuc | (+84)398419548 |
 | | nguyenphuc02kg@gmail.com |
 | | [www.linkedin.com/in/minhphuc14](http://www.linkedin.com/in/minhphuc14) |
 | | https://github.com/minhphuc02/PortfolioProject |
